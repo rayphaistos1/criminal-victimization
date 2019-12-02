@@ -25,3 +25,6 @@ To paraphrase the economist William Easterly, "Oppression is a crime of opportun
 Asian actors were the only group that did not show a statistically significant difference in their harming individuals of their own ethinc group more often than individuals of other ethnic groups. They were also the only group that did not follow the trend of the largest proportion of the actors being the same ethinicty as the victims. 
 
 Continuing with opportunty, white and black numbers in my opinion provide ample information behind them concerning access, opportunity, and history of the nation. 
+
+
+## Raymond K Roberts; raymond.k.roberts@gmail.com
